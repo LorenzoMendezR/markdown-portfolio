@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+* Play Soccer :heart:
+* Montain Bike :smile:
+* Swimming :+1:
+* Video Games 
